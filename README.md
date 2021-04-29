@@ -1,0 +1,2 @@
+# TerrellSpeech
+Mary Church Terrell
